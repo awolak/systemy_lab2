@@ -1,1 +1,0 @@
-# systemy_lab2
